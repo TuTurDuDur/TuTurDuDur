@@ -1,1 +1,1 @@
-Hi I'm TuTurDur ! I like playing Minecraft and programming !
+Cool kid doin some programmin
